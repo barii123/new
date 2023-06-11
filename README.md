@@ -1,1 +1,3 @@
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.computerhope.com%2Fjargon%2Fd%2Fdata.htm&psig=AOvVaw36WLVC9Fgrhv-QyXu5lDhs&ust=1686578678517000&source=images&cd=vfe&ved=0CA4QjRxqFwoTCPil06qxu_8CFQAAAAAdAAAAABAD]
+![profile pic](https://github.com/barii123/new/assets/134049495/ba5db736-dc32-486e-80ff-00a381915f2d)
+
+![2921d7de25b03e0b351889e77bbfdb5a](https://github.com/barii123/new/assets/134049495/43342264-cea8-4941-8c93-ca556addb213)
