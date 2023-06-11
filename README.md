@@ -1,1 +1,1 @@
-/profile pic.jpg
+/assets/images/profile pic.jpg
